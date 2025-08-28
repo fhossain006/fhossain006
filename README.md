@@ -58,5 +58,5 @@
 ---
 
 ## 🌍 Let’s Connect
-- 🔗 [LinkedIn](www.linkedin.com/in/md-farhad-hossain-7152bb61)  
+- 🔗 www.linkedin.com/in/md-farhad-hossain-7152bb61
 - 📧 **f.hossain006@gmail.com **  
